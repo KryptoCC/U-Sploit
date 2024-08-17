@@ -8,7 +8,7 @@ Temporary Executor+Fun Project why not
 3.DONT download from anywhere this is the only site
 
 
-step 1 install U Sploit step 2 inject step 3 have fun optional step make kids rage/cry
+step 1 install U Sploit | step 2  inject | step 3 have fun | optional step make kids rage/cry
 
 ![New Project](https://github.com/user-attachments/assets/596baf38-7fcc-417b-a6da-5344b6727351)
 
